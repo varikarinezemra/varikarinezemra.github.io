@@ -1,2 +1,2 @@
 # varikarinezemra.github.io
-KRIST BYTHQIRI
+ABSOLUTE TROLL
